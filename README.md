@@ -23,7 +23,7 @@
 
 ##  Follow Me
 
-- [Linkin](https://www.linkedin.com/in/pns1681999)
+- [Linkedin](https://www.linkedin.com/in/pns1681999)
 - [Facebook](https://www.facebook.com/pns.1999)
 - [Instagram](https://www.instagram.com/pnson_168)
 
